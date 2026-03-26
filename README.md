@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VarshaPrasad900
 - 👀 I’m interested in team work and collaboration
-- 🌱 I’m currently learning Btech IT 1st year
+- 🌱 I’m a techie girl
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
